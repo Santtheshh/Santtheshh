@@ -13,6 +13,5 @@ MCA 2ndt Year Student: Currently studying in my second year, eager to apply and 
 
 ### 🌟 Interests & Goals:
 
-Keenly interested in exploring a wide range of opportunities in technology.
-Dedicated to developing innovative projects and contributing to exciting tech developments.
+I’m deeply passionate about exploring diverse opportunities in the tech world. Committed to creating innovative solutions, I aim to contribute meaningfully to groundbreaking projects and the latest advancements in technology.
 
